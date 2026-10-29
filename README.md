@@ -1,4 +1,4 @@
-
+#Titi
 ────୨ৎ────
 
 *Oláa!! Seja bem vindo ao meu perfil! (^‿^✿)*
@@ -25,6 +25,11 @@
 
 
 🝮 Sobre o meu curso:
+ Eu gostaria de aprender a:
+ - Colaborar em grupo
+ - Criar códigos
+ - colocar ideias em prática
+   **além de informações sobre informática**
 --
 Estudo sobre infromática e essas são as minhas matérias:
 - Arquitetura de Hardware e Software
