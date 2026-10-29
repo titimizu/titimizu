@@ -17,7 +17,7 @@
 
 ༺ Minhas series favoritas são:
 --
-- Aggretsuko, paradise kiss, jojo, soulEater, deathnote, etc..
+- Aggretsuko, paradise kiss, jojo, soulEater, deathnote, hunterxhunter, etc..
 
 ఌ 𝐒𝐨𝐛𝐫𝐞 𝐦𝐞𝐮𝐬 𝐡𝐨𝐛𝐛𝐢𝐞𝐬...
 --
